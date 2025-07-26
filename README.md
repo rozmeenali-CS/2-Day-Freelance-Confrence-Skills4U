@@ -36,3 +36,7 @@ July 30–31, 2025
 ## 🔗 Useful Links
 - Trello Board: [Link](https://trello.com/b/SUHg5O9m/2-day-freelance-conference-skills4u)
 - Registration Form: [Google Form](https://docs.google.com/forms/d/e/1FAIpQLScHB5vE3mhM5ZK8ctfu2D9ONjI-qmgoNiQrx_XphEjNNXhAnA/viewform)
+- Examination Form: [pass short Exam  to get certificate](https://docs.google.com/forms/d/e/1FAIpQLScm6TJA8cDc58UPsAQpXgsHQKGbwbbIYsqedt7dTQpVjJvR-w/viewform)
+- Video Task Demo 1 : [watch](https://www.linkedin.com/feed/update/urn:li:activity:7354606352838668290/)
+- Video Task Demo 2 : [watch](https://www.linkedin.com/feed/update/urn:li:activity:7354602582712926208/)
+
