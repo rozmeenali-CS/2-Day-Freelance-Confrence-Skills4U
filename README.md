@@ -40,3 +40,4 @@ July 30–31, 2025
 - Video Task Demo 1 : [watch](https://www.linkedin.com/feed/update/urn:li:activity:7354606352838668290/)
 - Video Task Demo 2 : [watch](https://www.linkedin.com/feed/update/urn:li:activity:7354602582712926208/)
 
+![Event Poster](2.png)
